@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Darknesss01
+- 🌱 I’m currently learning: how to code and tips to your computer
+- 📫 How to reach me: my discord is (DARKNESSS ! ! ! ! !#1018) just add me and ask quistions 
